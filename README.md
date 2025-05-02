@@ -1,4 +1,4 @@
-# Adobe-AI-Photoshop-2025-Completely-Free
+# Adobe AI Photoshop 2025 Completely Free
 ---
 A Portable version of the Adobe 2025 Photoshop AI. Completely Free Download.
 ---
